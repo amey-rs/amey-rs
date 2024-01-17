@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Securing computer networks and data communication**
 
-- 📫 How to reach me **ameyshinde3092@gmail.com**
+- 📫 How to reach me **amey.ravishinde@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
